@@ -55,7 +55,7 @@ We’re currently taking orders via:
 - 📱 **WhatsApp Orders**  
 - 🛍️ *Soon launching our Online Store*
 
-> *Follow us on Instagram: [@CraftedWithSoul](#)*  
+> *Follow us on Instagram: [@pri_artistic_graystone](#https://www.instagram.com/pri_artistic_graystone?igsh=eHk0a3AzNzR0b3U2)*  
 > *Drop us a message to get your custom piece started!*
 
 ---
