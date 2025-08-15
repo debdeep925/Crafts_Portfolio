@@ -1,6 +1,6 @@
 # 🎨 CraftedWithSoul – Handmade Crafts from the Heart
 
-Welcome to **CraftedWithSoul**, where creativity meets craftsmanship!  
+Welcome to **pri_artistic_graystone**, where creativity meets craftsmanship!  
 Based in **Bangalore, India**, we bring you a vibrant world of **handmade art and crafts** — made with love, soul, and a deep-rooted passion for creativity.
 
 ---
@@ -10,7 +10,7 @@ Based in **Bangalore, India**, we bring you a vibrant world of **handmade art an
 Hey there! I'm a **DevOps Engineer by profession**, but an **artist at heart**.  
 After spending years in the fast-paced IT industry, I decided it was time to slow down — not in career, but in **soulful expression**.
 
-What started as a weekend hobby turned into a beautiful journey, and today, it blooms into **CraftedWithSoul** — your new favorite corner for handcrafted treasures.
+What started as a weekend hobby turned into a beautiful journey, and today, it blooms into **pri_artistic_graystone** — your new favorite corner for handcrafted treasures.
 
 ---
 
